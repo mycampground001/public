@@ -7,6 +7,7 @@
 [김승훈](#0000ff)의 별명은 [보노보노빌런](#0000ff)입니다. 연말 계획은 한 해를 마무리하는 의미에서 좋은 사람들과 행복한 시간을 보내며 마무리한다.
 ---
 ![default](https://user-images.githubusercontent.com/45933817/50433310-d6429c00-091a-11e9-8109-11f1ac3f8955.jpg){: width="100" height="100"}
+
 [임동명](green)의 별명은 [포켓몬마스터](#0000ff)입니다. 연말 계획은 핸드폰에 쌓인 사진 정리하면서 한해를 되돌아보고 가족이랑 송년회도 하려고 합니다.
 ---
 ![sangyoung](https://user-images.githubusercontent.com/45933884/50433560-50275500-091c-11e9-9716-58b8d289aa7f.jpg){: width="100" height="100"}
