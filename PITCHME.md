@@ -13,7 +13,7 @@
 ---
 ![sangyoung](https://user-images.githubusercontent.com/45933884/50433783-ba8cc500-091d-11e9-8eed-9c302a0ca36f.jpg)
 
-[정상영](green)의 별명은 [킹오브비둘기](#0000ff)입니다. 연말 계획은 휴식을 취할 것입니다. 31일에는 해보러 나갈 수도 있고 나가지 않을 수도 있습니다.
+[정상영](green)의 별명은 [킹오브비둘기](#0000ff)입니다. 연말 계획은 휴식을 취할 것입니다. 31일에는 해보러 나갈 수 있고 나가지 않을 수도 있습니다.
 ---
 ![taehyun](https://user-images.githubusercontent.com/45933884/50433748-68e43a80-091d-11e9-9a34-29f4c687692b.jpg)
 
